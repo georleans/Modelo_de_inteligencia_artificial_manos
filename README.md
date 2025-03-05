@@ -1,0 +1,1 @@
+# Modelo_de_inteligencia_artificial_manos
